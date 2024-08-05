@@ -1,3 +1,3 @@
 - I’m @Rockledge346
-- I’m interested in software engineering
+- I’m interested in CyberSecurity
 - How to reach me: You can email me at rockledge346@gmail.com
