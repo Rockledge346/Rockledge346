@@ -1,3 +1,2 @@
-- I’m @Rockledge346
-- I’m interested in CyberSecurity
+- I’m Fionn
 - Send me an email me at rockledge346@gmail.com if you want
